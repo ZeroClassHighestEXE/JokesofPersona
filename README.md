@@ -39,6 +39,7 @@ I'm usually with friends, unless they're offline, and I am really overprotective
 I tend to joke and make dark humor jokes I'm sorry if I make you uncomfortable.
 I don't like it when people joke about serious things and will mention not to do so.
 I also will say "Safe Server BTW." when people make jokes that **TECHNICALLY** break the Safe server rules.
+
 <sub>[Also @vesperlemont HII VESPER HIII HIII HEHEHEHEH!!]<sub/>
 
 ## Awareness related stuff.
