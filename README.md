@@ -2,6 +2,8 @@
 
 ![Banner Image](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExejlsbG1zNTVnMm9nMHRham5oYXp3cTR3NzFpOHE0czNrNWMzcjJ1ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Mk8jpXI3d53J6fFJBr/giphy.gif)
 
+- **[WARNING: I WILL LOOK THROUGH EVERY GITHUB I SEE, JUST IN CASE.]**
+
 ## About Me !!
 - My name is Noir, but you can also call me Ren, Joker or Nix !!
 - My birthday is 4/16/2008, I am an adult.
