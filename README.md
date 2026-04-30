@@ -7,6 +7,7 @@
 - My birthday is 4/16/2008, I am an adult.
 
 - **Just your local Voice Actor who plays VRChat, Ponytown, ROBLOX and other games !!**
+
 If you spot me anywhere else say Hello!, I'm friendly!
 
 <sub>I'm also questioning if I am a system and I'm working on that, with help from people IRL.</sub>
