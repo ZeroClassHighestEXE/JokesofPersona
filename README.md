@@ -52,3 +52,7 @@ I will not interact with the Welcome Home fandom/community due to past experienc
 
 ## Ship Related Stuff.
 Hi, so I'm alright with most ships unless they are illegal or just straight up horrible ships, and I usually immediately **BLOCK** Proshippers and Darkshippers, **DO NOT FORCE SHIPS ONTO ME.** that will result in me either getting really uncomf or just straight up blocking you.
+
+
+## Characters I HVYKIN.
+Joker [Persona 5], Exeller [Sonic.exe SOH], The Spectre [4saken], Matt [The Last Guest], Mugman [Cuphead], Elder Faerie Cookie [CRK], Artful [DOD], Metal Sonic [STH], Rainbow Dash [MLP], Infected [Regretevator], Griefer [Blocktales], 007n7 [ROBLOX HACKER], Rodger [DW] and much more just ask if you wanna know!!
